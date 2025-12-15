@@ -1,5 +1,5 @@
 # Hey there, Firda here 🙌✨  
-Exploring data and technology, with anime and manga as a little comfort along the way.
+You can call me Yay, someone who enjoys exploring data and technology, with anime and manga as a little comfort along the way.
 
 ### 💫 About Me:
 - 🎓 Information Systems undergraduate at Gunadarma University  <br>
