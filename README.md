@@ -2,7 +2,7 @@
 You can call me Yay, someone who enjoys exploring data and technology, with anime and manga as a little comfort along the way.
 
 ### 💫 About Me:
-- 🎓 Information Systems undergraduate at Gunadarma University  <br>
+- 🎓 Information Systems graduate at Gunadarma University  <br>
 - 📊 Interested in Data Analysis, Data Science, Machine Learning, and AI  <br>
 - 🧠 Enjoy turning data-driven insights into real-world solutions  <br>
 - 🤝 Comfortable working in team-based and collaborative environments  <br>
